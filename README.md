@@ -4,6 +4,6 @@
 
 - 💬 Business Contact : karkata@my.id
 
-- 📫 SEO Writer **duatigajuni.my.id**
+- 📫 SEO Writer **[duatigajuni.my.id](https://www.duatigajuni.my.id/)**
 
 - 🎧 Voice Over (Now Available on : [spotify](https://open.spotify.com/show/0lxqMpPiTSc6yt56YLgtPu)
